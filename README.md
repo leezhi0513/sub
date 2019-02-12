@@ -13,3 +13,5 @@ Email: amazingdmdd@gmail.com
 Telegram: [@Amazing_DM](https://t.me/Amazing_DM)
 
 TelegramChat: [@ssrshare](https://t.me/ssrshare)
+
+TelegramChannel: [@ssrtool](https://t.me/ssrtool)
